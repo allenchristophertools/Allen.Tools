@@ -6,3 +6,5 @@ Manually downloading all of the embedded math and statistical formulas, graphs, 
 would have been another task to put on the heap of things I had going on and didn't come in high priority in comparison 
 to my wants and needs, so it was a sad sacrifice to make. Wix's interface was difficult to print out PDFs of blog posts
 moreover, I feared that frustrated many readers, so I opted to delete the site to asway negative associations to my name.
+
+I will get back to blogging from my notebooks pretty soon here, I promise, and I'll throw up some old papers soon!

@@ -1,4 +1,4 @@
-I'd be happy to talk to you so send me an email at mr@allen.tools to chat. If you're looking for my code repos they currently it's at kayfay. I don't operate as a business anymore in this website is more or less a personal site but if you want to direct chat with me connect with me on linkedin.com/in/allentools.
+I'd be happy to talk to you so send me an email at mr@allen.tools to write a letter. If you're looking for my code repos they currently it's at kayfay. I don't operate as a business anymore in this website is more or less a personal site but if you want to direct chat with me connect with me on linkedin.com/in/allentools.
 
 About Me
 
